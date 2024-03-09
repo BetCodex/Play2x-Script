@@ -7,4 +7,4 @@ Video: https://youtu.be/JqF_0QG78zk<br>
 <br>
 Link: https://betcodex.com/item/play2x
 <br>
-<br><b>Play2x New 18 Slots Games: https://betcodex.com/en/item/play2x-script-new-18-slots-games
+<br><b>Play2x New 18 Slots Games: https://betcodex.com/item/play2x-script-new-18-slots-games
