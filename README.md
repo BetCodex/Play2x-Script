@@ -5,11 +5,7 @@
 Play2x is a Casino script. It is full open source code.
 <br>
 <br>
-<b>Video:</b> https://youtu.be/JqF_0QG78zk<br>
-<br>
-<b>Link:</b> https://betcodex.com/item/play2x
-<br>
-<br><b>Play2x New 18 Slots Games:</b> https://betcodex.com/item/play2x-script-new-18-slots-games
+<b>Video:</b> https://youtu.be/bmMWT8_szS4
 <br>
 <br>
 <b>Features</b>
